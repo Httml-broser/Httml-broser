@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Httml-broser
-- 👀 I’m interested in ...
+- 👀 I’m interested in game design
 - 🌱 I’m currently learning coding, and game design
 - 💞️ I’m looking to collaborate on coding, and game design
-- 📫 How to reach me ...
+- 📫 Anyone can contact me by sending an email to joao.s.dantas.carvalho@gmail.com :)
